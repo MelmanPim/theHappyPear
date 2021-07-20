@@ -12,7 +12,9 @@ This is a simple recipe and to most it is a total crowd pleaser!
 200 g Rich tea or digestive biscuits vegan
 100 g coconut oil
 100 g maple syrup
-60 g of mixed nuts and dried fruit we used 30g walnuts 30g goji berries
+60 g of mixed nuts and dried fruit we used 30g 
+walnuts 30g goji berries
+Voeg een beetje liefde toe!
 
 ###INSTRUCTIONS
  
